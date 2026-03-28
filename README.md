@@ -1,4 +1,4 @@
-## Hi Im Rishanda Falih Sahla 👋
+## Hi Im Rishanda Faliha Sahla 👋
 
 
 ## Skills & Tech Stack  is a ✨ 
